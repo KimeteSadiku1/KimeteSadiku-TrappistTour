@@ -1,1 +1,1 @@
-# Kimete-Sadiku-Trappist-Tour
+# KimeteSadiku-TrappistTour
